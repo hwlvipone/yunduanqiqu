@@ -7,6 +7,7 @@
 
  [2025国考公安](https://pan.quark.com)
 
+-[2025公考合集](https://pan.quark.cn)
 1. [2025国考公安](https://pan.quark.cn/s/4b192e5d43dd)
    2025年国家公务员考试公安类职位的资料合集。
    
