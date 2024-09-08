@@ -91,62 +91,115 @@
 28. [事业单位专业知识合集](https://pan.quark.cn/s/1c5d715a8ef0)  
     事业单位考试专业知识部分的资料合集。
 
-## 🏢 其他考试相关资料
+## 🏢 其他考试相关资料（续）
 
-1. [2024中国银行笔试](https://pan.quark.cn/s/295fbdf04c7f)  
-   2024年中国银行笔试的详细资料。
-   
-2. [工商银行资料包](https://pan.quark.cn/s/21affe513a0b)  
-   工商银行招聘考试的资料包。
-   
-3. [中国农业发展银行](https://pan.quark.cn/s/d5e73534910c)  
-   中国农业发展银行招聘考试的资料。
-   
-4. [中国招商银行](https://pan.quark.cn/s/cc40ee943a79)  
-   中国招商银行招聘考试的资料。
-   
-5. [中国农业银行](https://pan.quark.cn/s/287b67d0d2ef)  
-   中国农业银行招聘考试的资料。
-   
-6. [四六级考前预测合集](https://pan.quark.cn/s/3ac1868a3c2c)  
-   大学英语四六级考试的考前预测资料合集。
-   
-7. [2023年时政资料包](https://pan.quark.cn/s/67a71896f662)  
-   2023年的时政资料合集。
-   
-8. [2024三支一扶面试资料合集](https://pan.quark.cn/s/088f5bfa4afa)  
-   2024年三支一扶面试的详细资料。
-   
-9. [2024保荐代表人](https://pan.quark.cn/s/783febd7e821)  
-   2024年保荐代表人的考试资料。
-   
-10. [2024广东双百资料合集](https://pan.quark.cn/s/37e40eeb78e1)  
-    2024年广东省双百工程的资料合集。
-    
-11. [2024公基资料合集](https://pan.quark.cn/s/c007b35ff68a)  
-    2024年公务员考试公共基础知识的资料合集。
-    
-12. [2024教招面试合集](https://pan.quark.cn/s/bfcee7b5f4c2)  
-    2024年教师招聘考试的面试资料合集。
-    
-13. [2024遴选资料合集](https://pan.quark.cn/s/c912a0c2064a)  
-    2024年公务员遴选考试的资料合集。
-    
-14. [2024社区工作者面试资料合集](https://pan.quark.cn/s/29bbe46613bc)  
-    2024年社区工作者面试的资料合集。
-    
-15. [2024时政合集](https://pan.quark.cn/s/acedbb6826be)  
-    2024年的时政资料合集。
-    
 16. [2024西部计划合集](https://pan.quark.cn/s/11504c9a4f59)  
     2024年西部计划的资料合集。
-    
+
 17. [2024下教资笔试合集](https://pan.quark.cn/s/ba11bbdda374)  
     2024年下半年教师资格证考试的笔试资料合集。
-    
+
 18. [2024医疗结构化面试资料](https://pan.quark.cn/s/1cd7d8b7758b)  
     2024年医疗系统结构化面试的资料。
-    
+
 19. [2025考研资料](https://pan.quark.cn/s/e33374094645)  
     2025年考研的详细资料合集。
+
+20. [A-10 医学考试](https://pan.quark.cn/s/e6cc3ff6a371)  
+    医学考试的详细资料合集。
+
+21. [播音主持系列](https://pan.quark.cn/s/f0f453f11cc2)  
+    播音主持考试的资料合集。
+
+22. [播音主持系列(1)](https://pan.quark.cn/s/d0c08f69047e)  
+    播音主持考试的第一部分资料合集。
+
+23. [常识判断](https://pan.quark.cn/s/97db43a6e5ea)  
+    公务员考试常识判断部分的详细资料。
+
+24. [多省联考真题精讲](https://pan.quark.cn/s/89c71c5d12fe)  
+    多省公务员联考的真题精讲资料。
+
+25. [导游证备考资料合集](https://pan.quark.cn/s/83fc10e70f9c)  
+    导游证考试的备考资料合集。
+
+26. [辅警考试](https://pan.quark.cn/s/0bd85ee0fb18)  
+    辅警考试的相关资料。
+
+27. [工会](https://pan.quark.cn/s/849290738158)  
+    工会相关的考试资料。
+
+28. [国家电网](https://pan.quark.cn/s/69e58a60bb2f)  
+    国家电网招聘考试的资料。
+
+29. [基金从业](https://pan.quark.cn/s/43fbd46b0d41)  
+    基金从业资格考试的资料。
+
+30. [经济师资料](https://pan.quark.cn/s/246a6a458caa)  
+    经济师考试的详细资料。
+
+31. [计算机操作软件学习合集](https://pan.quark.cn/s/20b2b83d330a)  
+    计算机操作和软件学习的资料合集。
+
+32. [农行PDF资料](https://pan.quark.cn/s/b6ca7e0a02b5)  
+    中国农业银行招聘考试的PDF资料。
+
+33. [判断推理](https://pan.quark.cn/s/38f59ce6c7bd)  
+    公务员考试判断推理部分的详细资料。
+
+34. [PPT模板](https://pan.quark.cn/s/00624f43f6f3)  
+    各类PPT模板合集，适合制作演示文稿。
+
+35. [普通话课程资料包](https://pan.quark.cn/s/adc5836ecf28)  
+    普通话考试的课程资料包。
+
+36. [全国各省旅游攻略](https://pan.quark.cn/s/4097376a6b4a)  
+    各省的旅游攻略合集，适合旅游爱好者。
+
+37. [手抄报板报模板汇总](https://pan.quark.cn/s/2dc3a310d3a8)  
+    各类手抄报和板报的模板合集。
+
+38. [学习强国3000题](https://pan.quark.cn/s/3e0aba899327)  
+    学习强国平台的3000道题目合集。
+
+39. [学习强国6000题](https://pan.quark.cn/s/c75280783d80)  
+    学习强国平台的6000道题目合集。
+
+40. [幼儿园课程合集](https://pan.quark.cn/s/52a5f863a5b1)  
+    幼儿园教学的课程资料合集。
+
+41. [医疗结构化面试资料合集](https://pan.quark.cn/s/a9b765415e83)  
+    医疗系统结构化面试的资料合集。
+
+42. [医疗卫生招聘](https://pan.quark.cn/s/64bdc4ab2448)  
+    医疗卫生系统招聘考试的详细资料。
+
+43. [言语理解](https://pan.quark.cn/s/5d061cf8d0f6)  
+    公务员考试言语理解与表达部分的资料。
+
+44. [邮政笔试资料包](https://pan.quark.cn/s/ec5691fc77a0)  
+    邮政系统招聘考试的笔试资料包。
+
+45. [自考资料](https://pan.quark.cn/s/d229576c621f)  
+    自学考试的详细资料合集。
+
+46. [资料分析](https://pan.quark.cn/s/4f02cc6f4404)  
+    公务员考试资料分析题型的详细资料。
+
+47. [专升本地区分类合集](https://pan.quark.cn/s/9195ea2c7b25)  
+    专升本考试的地区分类资料合集。
+
+48. [真题汇总大合集](https://pan.quark.cn/s/5c4906598c3b)  
+    各类考试的历年真题汇总。
+
+49. [专项讲练班](https://pan.quark.cn/s/9ebbd20928f8)  
+    各类专项讲练班的详细资料合集。
+
+50. [综应和写作资料](https://pan.quark.cn/s/bfb1c74c53d3)  
+    公务员考试综合应用能力和写作部分的详细资料。
+
+希望这些资料能对你有所帮助，祝你备考顺利！📖💪
+```
+
+这样做可以确保链接可点击，并且整个README.md文件看起来整洁、美观。
     
